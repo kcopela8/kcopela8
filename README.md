@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on art stuff tbh.
 - 📫 How to reach me: find me on Palia as "Dicey Kidd" lmao.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I have a twin brother who does coding for his job. Another fun fact is this was the username I was given for my college email.
+- ⚡ Fun fact: I have a twin brother who does coding for his job. We'll see if I learn enough to make something.
 
 <!---
 kcopela8/kcopela8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
